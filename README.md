@@ -1,3 +1,3 @@
 This game is sole responsibility of hearby players and is not to be used (in)out of context as a sole proprietship. Please use caution when using game, sedries may become addictive.
 Please be warned of servex commings on proprietship, its in the installment mode, meaning this hearby to agreement for hearby monies shall be delivered to committee and cancellation is advised only if there is a hundrey problem.
-Said monies is $0.96 per day of membership and it is the sole resposibility of client to use service and take andwerese of payment, if and when there is a chargeback, all soress will be cancelled under WA state law underwritten.
+Said monies is $0.96 per diem which is said(3months), of membership and it is the sole resposibility of client to use service and take andwerese of payment, if and when there is a chargeback, all soress will be cancelled under WA state law underwritten.
